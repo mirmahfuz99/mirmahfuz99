@@ -16,4 +16,4 @@
 
 ✅ Passionate about learning new technology and skills.
 
-Reach me directly whatsapp +8801703907089, Email: mirmahfuz10@gmail.com
+Reach me directly Email: mirmahfuz10@gmail.com
